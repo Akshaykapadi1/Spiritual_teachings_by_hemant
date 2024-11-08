@@ -1,1 +1,0 @@
-# Spiritual_teachings_by_hemant
